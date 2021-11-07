@@ -1,2 +1,0 @@
-# Giankrlo
-Fotos
